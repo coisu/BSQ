@@ -1,3 +1,1 @@
-# BSQ
 
-By Yangchi K.
